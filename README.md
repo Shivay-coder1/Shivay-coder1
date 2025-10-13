@@ -16,7 +16,7 @@ If you want to learn how i do it, [my books and course](https://www.bunnyhop.ai/
 
 #### Fun Facts:
 
-* I don’t like coffee or tea
+* I don’t like coffee 
 * Demon Slayer is my favorite anime
 * **Hobbies:** anime, gym, building things
 
